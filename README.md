@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MegaMikeyJ
-- 👀 I’m interested in various things including DIY & DATY 
+- 👀 I’m interested in various things including DIY & 
 - 🌱 I’m currently learning woodworking & working wood
 - 💞️ I’m looking to collaborate on cloud development.
 - 📫 How to reach me ...
